@@ -1,2 +1,2 @@
 Welcom to eggBest Chatbot
-🥳🎉  Let's Chat  🎉🥳
+🎉🎉  Let's Chat  🎉🎉
